@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **asiawill06@gmail.com**
 
-- 📄 Know about my experiences by viewing my [resume](https://tinyurl.com/3khbd6f2)
+- 📄 Know about my experiences by viewing my [resume](https://tinyurl.com/yc37bhea) 
 
 - ⚡ Fun fact **I was previously an owner and Lead Speech-Language Pathologist of a private speech therapy practice for 8 years.**
 
