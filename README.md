@@ -7,7 +7,7 @@
 
 - 📄 Know about my experiences by viewing my [resume](https://tinyurl.com/ycx9nhx7)
 
-- ⚡ Fun fact **I was previously an owner and Lead Speech-Language Pathologist of a private Speech-Language therapy practice for 8 years.**
+- ⚡ Fun fact **I was previously an owner and Lead Speech-Language Pathologist of a private speech therapy practice for 8 years.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
