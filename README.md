@@ -1,11 +1,11 @@
 <h1 align="center">Hi 👋🏾, I'm Asia Hutchins, M.S. CCC-SLP</h1>
 <h3 align="center">I would love to be your next Software Engineer.</h3>
 
-- 👨‍💻 All of my projects are available at [https://asiaaitch.github.io/](https://asiaaitch.github.io/)
+- 👨‍💻 All of my projects are available at [Portfolio](https://asiaaitch.github.io/)
 
 - 📫 How to reach me **asiawill06@gmail.com**
 
-- 📄 Know about my experiences [https://tinyurl.com/ycx9nhx7](https://tinyurl.com/ycx9nhx7)
+- 📄 Know about my experiences [Resume](https://tinyurl.com/ycx9nhx7)
 
 - ⚡ Fun fact **I was previously an owner and Lead Speech-Language Pathologist of a private Speech-Language therapy practice for 8 years.**
 
