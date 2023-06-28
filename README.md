@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **asiawill06@gmail.com**
 
-- 📄 Know about my experiences by viewing my [resume]([https://tinyurl.com/yc37bhea](https://fsu-my.sharepoint.com/:w:/g/personal/aaw07d_fsu_edu/ETU-unmFaLlOpmzT86N2Mm4BsrlIJuA8nvbW_MlY6bKBhA?e=gOwYwr) 
+- 📄 Know about my experiences by viewing my [resume](https://fsu-my.sharepoint.com/:w:/g/personal/aaw07d_fsu_edu/ETU-unmFaLlOpmzT86N2Mm4BsrlIJuA8nvbW_MlY6bKBhA?e=gOwYwr) 
 
 - ⚡ Fun fact **I was previously an owner and Lead Speech-Language Pathologist of a private speech therapy practice for 8 years.**
 
